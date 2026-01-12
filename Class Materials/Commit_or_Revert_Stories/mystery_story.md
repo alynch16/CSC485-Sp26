@@ -11,13 +11,13 @@ Several people noticed strange events, but none reported them immediately. They 
 Objects, notes, and minor inconsistencies began to appear. Some were real, some misleading. The notes were all signed by the same hard to read signature.
 
 ## The Suspects
-A few individuals seem connected to the events, though their roles are unclear.
+A few individuals seem connected to the events, though their roles are unclear. Carter was seen leaving Accino on a random Tuesday night, which was suspicious because we didn't have class.
 
 ## The Twist
-Just when things seemed straightforward, new evidence complicated the case.
+Just when things seemed straightforward, new evidence complicated the case. A bloody hand print was found by the window at the front of the room.
 
 ## Investigation
-Decisions must be made about which clues to follow and which to ignore.
+Decisions must be made about which clues to follow and which to ignore. Was Carter meeting someone? Did a note lead her to the classroom? Was this all her plan?
 
 ## The Outcome
 The mystery is far from resolved. What will happen next?...
