@@ -16,7 +16,9 @@ My name is Nora Cauley. But I like to go by Nora.
 
 ## Hobbies:
 
-<list a few hobbies>
+- Reading
+- Working Out
+- Hanging out with friends
 
 ## What you want to do when you graduate?
 
